@@ -1,4 +1,4 @@
-## Oi Amigos
+## Oi Amigos 😁
 
 Me chamo Gabriel, tenho 22 anos e programo por hobby e amor.
 
