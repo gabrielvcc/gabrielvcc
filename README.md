@@ -1,4 +1,4 @@
-## Fala galerinha do mal
+## ✨ Fala galerinha do mal
 
 Me chamo Gabriel, tenho 22 anos sou **Engenheiro Civil** e **Projetista de Esquadrias**. Faço alguns apps na minha área e alguns outros por hobby
 
